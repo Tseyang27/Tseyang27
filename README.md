@@ -1,4 +1,4 @@
-👋 Hi, I’m Tsering Yangji GurungBusiness Analytics Professional | University of New Haven MS Graduate (3.90 GPA) 
+👋 Hi, I’m Tsering Yangji Gurung |Business Analytics Professional | University of New Haven MS Graduate (3.90 GPA) 
 
 📈 Primary Focus: I specialize in transforming raw financial and customer data into actionable business strategies.
 
